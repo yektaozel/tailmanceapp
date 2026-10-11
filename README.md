@@ -1,0 +1,2 @@
+# tailmanceapp
+THE SOCIAL WORLD OF OUR FURRY FRIENDS
